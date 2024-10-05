@@ -2,7 +2,7 @@
 - 👀 I am interested in programming FiveM servers, Minecraft and websites
 - 🌱 I am currently learning a higher level of programming
 - 💞️ I am looking to collaborate on servers or web pages
-- 📫 How to contact me loboyaretgl6@gmail.com
+- 📫 How to contact me yaareetgl@gmail.com
 - 😄 Pronouns: Wolf
 - ⚡ Fun fact: Find out for yourself, what are you waiting for!!
 
